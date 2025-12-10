@@ -1,3 +1,3 @@
 # ABOUT ME
 
-## TINC UNA BOMBA
+## TINC UNA BOMBA 💣💣💣 💥💥💥
